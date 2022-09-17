@@ -16,3 +16,4 @@ d
 ![E-Pss8WVgAEJoSW](https://user-images.githubusercontent.com/111965282/189472424-75a7f487-8b85-4b44-9536-c2b543596fc3.jpg)
 ![BILL GUS BOB](https://user-images.githubusercontent.com/111965282/190156027-3860c42d-b1b6-4ffa-beca-b7fbdc691172.png)
 ![Untitled design (5)](https://user-images.githubusercontent.com/111965282/190583981-76a5949e-451b-48c6-8257-78146fb86b05.png)
+![Bill_Clinton_1992](https://user-images.githubusercontent.com/111965282/190837058-5522f4dc-c4e1-4451-8414-f176fca829d8.jpg)
