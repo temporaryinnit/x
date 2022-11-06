@@ -26,3 +26,4 @@ d
 ![Boduts](https://user-images.githubusercontent.com/111965282/192552809-ed9c48bd-ec5c-4c73-9251-f7cbc49c45a8.png)
 ![Untitled](https://user-images.githubusercontent.com/111965282/192790286-8132140b-5320-425b-bb86-76e5f8967478.jpg)
 ![download](https://user-images.githubusercontent.com/111965282/193379307-dd043dab-298c-4686-93fe-b703af1e0923.jpg)
+![FAULTS IN THE REVOLUTION](https://user-images.githubusercontent.com/111965282/200180019-b1472c37-47f6-4bc8-ad84-7e82a1894d13.png)
